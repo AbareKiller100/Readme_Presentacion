@@ -1,1 +1,1 @@
-T pse
+Readme de presentación (en proceso...)
