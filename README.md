@@ -8,6 +8,7 @@ Aunque mi experiencia previa es limitada, estoy constantemente buscando oportuni
 
 Estoy ansioso por unirme a un grupo para el proyecto final grupal de HENRY, donde podré compartir mis conocimientos y aprender de mis compañeros.
 
-Siempre estoy abierto a nuevas oportunidades y dispuesto a aprender de los demás. ¡No dudes en contactarme si tienes alguna pregunta o si quieres colaborar en algún proyecto interesante!
+Siempre estoy abierto a nuevas oportunidades y dispuesto a aprender de los demás. ¡No dudes en contactarme si tienes alguna pregunta o si quieres colaborar en algún proyecto interesante! Mi correo es themr.camper213@gmail.com
 
 ¡Gracias por visitar mi perfil de GitHub y espero tener la oportunidad de conectarnos pronto!
+
